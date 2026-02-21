@@ -1,57 +1,51 @@
-# 𝙃𝙚𝙡𝙡𝙤, 𝙄'𝙢 𝙍𝙤𝙗𝙚𝙧𝙩 𝙎𝙝𝙖𝙬
+# 𝙃𝙚𝙡𝙡𝙤, 𝙄'𝙢 𝙈𝙤𝙝𝙖𝙢𝙢𝙚𝙙 𝘼𝙢𝙖𝙙 👋
 
-[![](https://img.shields.io/badge/-@xiaoluoboding-%231DA1F2?style=flat-square&logo=twitter&logoColor=ffffff)](https://twitter.com/xiaoluoboding)
-[![](https://img.shields.io/badge/-@xiaoluoboding-%23181717?style=flat-square&logo=github)](https://github.com/xiaoluoboding)
-[![](https://img.shields.io/badge/-@xiaoluoboding-%23000000?style=flat-square&logo=codepen)](https://codepen.io/xiaoluoboding)
-[![](https://img.shields.io/badge/-@xiaoluoboding-%23000000?style=flat-square&logo=codesandbox)](https://codesandbox.io/u/xiaoluoboding)
-[![](https://img.shields.io/website?color=0ab9e6&style=flat-square&up_message=xlbd.me&url=https%3A%2F%2Fxlbd.me)](https://xlbd.me)
+[![](https://img.shields.io/badge/-mohammedamad98.9%40gmail.com-D14836?style=flat-square&logo=gmail&logoColor=ffffff)](mailto:mohammedamad98.9@gmail.com)
+[![](https://img.shields.io/badge/-@Mohammed--Amad-%23181717?style=flat-square&logo=github)](https://github.com/Mohammed-Amad)
+[![](https://img.shields.io/badge/-Nablus,%20Palestine-0ab9e6?style=flat-square&logo=googlemaps&logoColor=ffffff)](#)
 
-𝑰 ❤️ 𝑭𝒓𝒐𝒏𝒕-𝒆𝒏𝒅 𝑫𝒆𝒗𝒆𝒍𝒐𝒑𝒎𝒆𝒏𝒕!
+𝑰 ❤️ 𝑪𝒐𝒎𝒑𝒖𝒕𝒆𝒓 𝑽𝒊𝒔𝒊𝒐𝒏 & 𝑫𝒆𝒆𝒑 𝑳𝒆𝒂𝒓𝒏𝒊𝒏𝒈!
 
-:computer: 𝑨 𝒘𝒆𝒃 𝒅𝒆𝒗 𝒆𝒏𝒕𝒉𝒖𝒔𝒊𝒂𝒔𝒕 𝒘𝒊𝒕𝒉 𝒂 𝒑𝒂𝒔𝒔𝒊𝒐𝒏 𝒇𝒐𝒓 𝑽𝒖𝒆.𝒋𝒔.
+:computer: 𝑨𝑰 𝒔𝒕𝒖𝒅𝒆𝒏𝒕 @ 𝑨𝒏-𝑵𝒂𝒋𝒂𝒉 𝑵𝒂𝒕𝒊𝒐𝒏𝒂𝒍 𝑼𝒏𝒊𝒗𝒆𝒓𝒔𝒊𝒕𝒚 (2022–2026)
 
-🖖 𝙑𝙪𝙚.𝙟𝙨 𝙛𝙖𝙣𝙖𝙩𝙞𝙘𝙨 | 🍎 𝙎𝙬𝙞𝙛𝙩 𝙡𝙚𝙖𝙧𝙣𝙚𝙧 | ☕️ 𝘾𝙤𝙛𝙛𝙚𝙚 𝙡𝙤𝙫𝙚𝙧 | 🌵 𝘼𝙜𝙖𝙫𝙚 𝙣𝙖𝙣𝙣𝙮
+🧠 𝘾𝙤𝙢𝙥𝙪𝙩𝙚𝙧 𝙑𝙞𝙨𝙞𝙤𝙣 | 🧪 𝘿𝙚𝙚𝙥 𝙇𝙚𝙖𝙧𝙣𝙞𝙣𝙜 | ⚡ 𝙈𝙤𝙙𝙚𝙡 𝙏𝙧𝙖𝙞𝙣𝙞𝙣𝙜 & 𝙀𝙫𝙖𝙡𝙪𝙖𝙩𝙞𝙤𝙣 | 🛠️ 𝘽𝙖𝙘𝙠𝙚𝙣𝙙 𝘼𝙋𝙄𝙨
 
-💡 𝑷𝒂𝒔𝒔𝒊𝒐𝒏𝒂𝒕𝒆 𝒂𝒃𝒐𝒖𝒕 𝒃𝒓𝒊𝒏𝒈𝒊𝒏𝒈 𝒊𝒅𝒆𝒂𝒔 𝒕𝒐 𝒍𝒊𝒇𝒆. 𝑬𝒙𝒑𝒍𝒐𝒓𝒆 𝒂𝒍𝒍 𝒐𝒇 𝒎𝒚 𝒑𝒓𝒐𝒋𝒆𝒄𝒕𝒔.
+💡 𝑷𝒂𝒔𝒔𝒊𝒐𝒏𝒂𝒕𝒆 𝒂𝒃𝒐𝒖𝒕 𝒃𝒖𝒊𝒍𝒅𝒊𝒏𝒈 𝒑𝒓𝒂𝒄𝒕𝒊𝒄𝒂𝒍 𝑪𝑽 𝒔𝒚𝒔𝒕𝒆𝒎𝒔: 𝒅𝒂𝒕𝒂 → 𝒎𝒐𝒅𝒆𝒍 → 𝒅𝒆𝒑𝒍𝒐𝒚𝒎𝒆𝒏𝒕.
 
 ## 𝗖𝘂𝗿𝗿𝗲𝗻𝘁𝗹𝘆 𝘄𝗼𝗿𝗸𝗶𝗻𝗴 𝗼𝗻
+[![Computer Vision Projects](https://svg.bookmark.style/api?url=https://github.com/Mohammed-Amad&mode=light&style=horizontal)](https://github.com/Mohammed-Amad)
+[![Deep Learning Experiments](https://svg.bookmark.style/api?url=https://github.com/Mohammed-Amad&mode=dark&style=horizontal)](https://github.com/Mohammed-Amad)
+[![APIs for ML Models](https://svg.bookmark.style/api?url=https://github.com/Mohammed-Amad&mode=light&style=horizontal)](https://github.com/Mohammed-Amad)
 
-[![Auth UI Vue](https://svg.bookmark.style/api?url=https://github.com/nuxtbase/auth-ui-vue&mode=light&style=horizontal)](https://github.com/nuxtbase/auth-ui-vue)
-[![vue-command-palette](https://svg.bookmark.style/api?url=https://github.com/xiaoluoboding/vue-command-palette&mode=dark&style=horizontal)](https://github.com/xiaoluoboding/vue-command-palette)
-[![vue-sonner](https://svg.bookmark.style/api?url=https://github.com/xiaoluoboding/vue-sonner&mode=light&style=horizontal)](https://github.com/xiaoluoboding/vue-sonner)
+## 𝗠𝘆 𝗧𝗲𝗰𝗵 𝗦𝘁𝗮𝗰𝗸
 
-## 𝗠𝘆 𝗧𝗲𝗰𝗸 𝗦𝘁𝗮𝗰𝗸
+### Languages
+![Python](https://img.shields.io/badge/-Python-000000?style=flat-square&logo=python)
+![C](https://img.shields.io/badge/-C-000000?style=flat-square&logo=c)
+![C++](https://img.shields.io/badge/-C%2B%2B-000000?style=flat-square&logo=cplusplus)
+![SQL](https://img.shields.io/badge/-SQL-000000?style=flat-square&logo=postgresql)
+![Scala](https://img.shields.io/badge/-Scala-000000?style=flat-square&logo=scala)
 
-![HTML5](https://img.shields.io/badge/-HTML5-%23E44D27?style=flat-square&logo=html5&logoColor=ffffff)
-![CSS3](https://img.shields.io/badge/-CSS3-%231572B6?style=flat-square&logo=css3)
-![JavaScript](https://img.shields.io/badge/-JavaScript-%23F7DF1C?style=flat-square&logo=javascript&logoColor=000000&labelColor=%23F7DF1C&color=%23FFCE5A)
-![TypeScript](https://img.shields.io/badge/-TypeScript-007ACC?style=flat-square&logo=typescript&logoColor=white)
-![Vue.js](https://img.shields.io/badge/-Vue.js-%232c3e50?style=flat-square&logo=vuedotjs)
-![Nuxt](https://img.shields.io/badge/-Nuxt.js-%23282C34?style=flat-square&logo=nuxtdotjs)
-![React.js](https://img.shields.io/badge/-React.js-%23282C34?style=flat-square&logo=react)
-![Next.js](https://img.shields.io/badge/-Next.js-%23000000?style=flat-square&logo=nextdotjs)
+### ML / CV / Data
+![TensorFlow](https://img.shields.io/badge/-TensorFlow-000000?style=flat-square&logo=tensorflow)
+![Keras](https://img.shields.io/badge/-Keras-000000?style=flat-square&logo=keras)
+![OpenCV](https://img.shields.io/badge/-OpenCV-000000?style=flat-square&logo=opencv)
+![scikit-learn](https://img.shields.io/badge/-Scikit--Learn-000000?style=flat-square&logo=scikitlearn)
+![NumPy](https://img.shields.io/badge/-NumPy-000000?style=flat-square&logo=numpy)
+![Pandas](https://img.shields.io/badge/-Pandas-000000?style=flat-square&logo=pandas)
+![Spark](https://img.shields.io/badge/-Apache%20Spark-000000?style=flat-square&logo=apachespark)
+![Matplotlib](https://img.shields.io/badge/-Matplotlib-000000?style=flat-square&logo=plotly)
+![Seaborn](https://img.shields.io/badge/-Seaborn-000000?style=flat-square&logo=python)
 
-![Less](https://img.shields.io/badge/-Less-%231d365d?style=flat-square&logo=less&logoColor=ffffff)
-![Sass](https://img.shields.io/badge/-Sass-%23CC6699?style=flat-square&logo=sass&logoColor=ffffff)
-![Stylus](https://img.shields.io/badge/-Stylus-%23333333?style=flat-square&logo=stylus)
-![TailwindCSS](https://img.shields.io/badge/-TailwindCSS-%231a202c?style=flat-square&logo=tailwind-css)
-![UnoCSS](https://img.shields.io/badge/-UnoCSS-%23333333?style=flat-square&logo=unocss)
-![WindiCSS](https://img.shields.io/badge/-WindiCSS-%23000000?style=flat-square&logo=tailwind-css&&logoColor=48B0F1)
-
-![Webpack](https://img.shields.io/badge/-Webpack-%232C3A42?style=flat-square&logo=webpack)
-![Rollup](https://img.shields.io/badge/-Rollup-%23EC4A3F?style=flat-square&logo=rollupdotjs&logoColor=ffffff)
-![Vite](https://img.shields.io/badge/-Vite-%23646CFF?style=flat-square&logo=vite&logoColor=ffffff)
-![ESlint](https://img.shields.io/badge/-ESLint-%234B32C3?style=flat-square&logo=eslint)
-![Prettier](https://img.shields.io/badge/-Prettier-%23F7B93E?style=flat-square&logo=prettier&logoColor=ffffff)
-![Git](https://img.shields.io/badge/-Git-%23F05032?style=flat-square&logo=git&logoColor=%23ffffff)
-![GitLab](https://img.shields.io/badge/-GitLab-FCA121?style=flat-square&logo=gitlab)
-![VS Code](https://img.shields.io/badge/-VSCode-%23007ACC?style=flat-square&logo=visual-studio-code)
-
-![Netlify](https://img.shields.io/badge/-Netlify-%2300C7B7?style=flat-square&logo=netlify&logoColor=ffffff)
-![Vercel](https://img.shields.io/badge/-Vercel-%23ffffff?style=flat-square&logo=vercel&logoColor=000000)
-![Railway](https://img.shields.io/badge/-Railway-%230B0D0E?style=flat-square&logo=railway)
-![Render](https://img.shields.io/badge/-Render-%2346E3B7?style=flat-square&logo=render&logoColor=ffffff)
+### Backend / Tools
+![FastAPI](https://img.shields.io/badge/-FastAPI-000000?style=flat-square&logo=fastapi)
+![NodeJS](https://img.shields.io/badge/-NodeJS-000000?style=flat-square&logo=node.js)
+![MongoDB](https://img.shields.io/badge/-MongoDB-000000?style=flat-square&logo=mongodb)
+![MySQL](https://img.shields.io/badge/-MySQL-000000?style=flat-square&logo=mysql)
+![Oracle](https://img.shields.io/badge/-Oracle%20SQL-000000?style=flat-square&logo=oracle)
+![Kafka](https://img.shields.io/badge/-Kafka-000000?style=flat-square&logo=apachekafka)
+![Git](https://img.shields.io/badge/-Git-000000?style=flat-square&logo=git)
+![Postman](https://img.shields.io/badge/-Postman-000000?style=flat-square&logo=postman)
 
 ## 𝗦𝘁𝗮𝘁𝘀
-
-![xiaoluoboding's github stats](https://github-readme-stats.vercel.app/api?username=xiaoluoboding&show_icons=true&theme=dracula)
+![Mohammed's github stats](https://github-readme-stats.vercel.app/api?username=Mohammed-Amad&show_icons=true&theme=dracula)
