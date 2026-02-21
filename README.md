@@ -13,9 +13,9 @@
 💡 𝑷𝒂𝒔𝒔𝒊𝒐𝒏𝒂𝒕𝒆 𝒂𝒃𝒐𝒖𝒕 𝒃𝒖𝒊𝒍𝒅𝒊𝒏𝒈 𝒆𝒏𝒅-𝒕𝒐-𝒆𝒏𝒅 𝑨𝑰 𝒑𝒓𝒐𝒋𝒆𝒄𝒕𝒔: 𝒅𝒂𝒕𝒂 → 𝒎𝒐𝒅𝒆𝒍𝒔 → 𝒆𝒗𝒂𝒍𝒖𝒂𝒕𝒊𝒐𝒏.
 
 ## 𝗖𝘂𝗿𝗿𝗲𝗻𝘁𝗹𝘆 𝘄𝗼𝗿𝗸𝗶𝗻𝗴 𝗼𝗻
-[![Reuters Search Engine](https://svg.bookmark.style/api?url=https://github.com/IsmaelMousa/reuters-search-engine&mode=light&style=horizontal)](https://github.com/IsmaelMousa/reuters-search-engine)
-[![Automatic Essay Grading](https://svg.bookmark.style/api?url=https://github.com/Mohammed-Amad/Automatic-Essay-Grading-&mode=dark&style=horizontal)](https://github.com/Mohammed-Amad/Automatic-Essay-Grading-)
-[![Hospital Length Of Stay Prediction](https://svg.bookmark.style/api?url=https://github.com/Mohammed-Amad/Hospital-Length-Of-Stay-Prediction-Model&mode=light&style=horizontal)](https://github.com/Mohammed-Amad/Hospital-Length-Of-Stay-Prediction-Model)
+- 🔎 [**Reuters Search Engine**](https://github.com/IsmaelMousa/reuters-search-engine)
+- 📝 [**Automatic Essay Grading**](https://github.com/Mohammed-Amad/Automatic-Essay-Grading-)
+- 🏥 [**Hospital Length Of Stay Prediction Model**](https://github.com/Mohammed-Amad/Hospital-Length-Of-Stay-Prediction-Model)
 
 ## 𝗠𝘆 𝗧𝗲𝗰𝗵 𝗦𝘁𝗮𝗰𝗸
 
